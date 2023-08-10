@@ -1,2 +1,1 @@
-# MasJ
-YOLOOOO
+# kalian kontol
